@@ -1,0 +1,1 @@
+# Zoner-Photo-Studio-X-Patch
